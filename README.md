@@ -10,4 +10,8 @@ My name is Nicole. I live in Oberhaching near Munich. I'm a mum of 3 wonderful k
 ## List
 
 - looking forward to get to know new people
-- excited to learn new interesting new things 
+- excited to learn new interesting new things
+
+
+
+![underconstruction](https://github.com/Nicole-Schwarz/Nicole-Schwarz/assets/148331196/555aff68-5d8b-4fa9-9a49-8118998cf529)
