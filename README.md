@@ -1,7 +1,8 @@
 # Welcome to my GitHub-Page ❤
-## This is me:
+## Some facts about me:
 
 My name is Nicole. I live in Oberhaching near Munich. I'm a mum of 3 wonderful kids. I love to travel and enjoy good food and wine.
+In my free time I do Freeletics to stay fit and healthy.
 
 ## Picture
 
