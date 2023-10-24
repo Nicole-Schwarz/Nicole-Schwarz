@@ -10,7 +10,7 @@ My name is Nicole. I live in Oberhaching near Munich. I'm a mum of 3 wonderful k
 ## List
 
 - looking forward to get to know new people
-- excited to learn new interesting new things
+- excited to learn programming languages
 
 
 
