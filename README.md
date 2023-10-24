@@ -14,4 +14,4 @@ My name is Nicole. I live in Oberhaching near Munich. I'm a mum of 3 wonderful k
 
 
 
-![underconstruction](https://github.com/Nicole-Schwarz/Nicole-Schwarz/assets/148331196/555aff68-5d8b-4fa9-9a49-8118998cf529)
+![underconstruction](https://github.com/Nicole-Schwarz/Nicole-Schwarz/assets/148331196/d2e3cce3-facf-40ff-9dd4-0f35a8d274e1)
